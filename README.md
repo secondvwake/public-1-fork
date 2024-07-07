@@ -1,2 +1,1 @@
-# public-1
-hiiii yarr first fork check 
+I am going to be very rich 
